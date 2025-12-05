@@ -10,7 +10,7 @@ Funkčnosť MT7 integrovaná do architektúry BEEHIVE CAPITAL zabezpečuje stabi
 
 Pred hodnotením potenciálu Mobius Trader 7 má zmysel pozrieť sa na reputáciu brokera BEEHIVE CAPITAL. Aj ten najvýkonnejší terminál stratí hodnotu, ak broker neposkytuje čestné a transparentné podmienky spolupráce.
 
-Na internete sa nachádza množstvo autentických recenzií. Tu sú niektoré citácie z Blogspotu, Redditu a Medium:
+Na internete sa nachádza množstvo autentických recenzií. Tu sú niektoré citácie z [Medium](https://medium.com/@ajoydhar564/beehive-capital-recenzie-pre%C4%8Do-je-broker-spo%C4%BEahliv%C3%BD-aebe5e1b1131?postPublishedType=initial), [HackMD](https://hackmd.io/2swXQHlyT6i7E4Kf4MtHCQ) a [IMDb](https://www.imdb.com/list/ls4156229062):
 
 * „Rozhranie platformy je intuitívne, cenové dáta sa aktualizujú často a pokyny sa vykonávajú korektne – bez meškaní a cenových odchýlok.“
 * „Viac ako 500 dostupných aktív a rozumná úroveň pákového efektu umožňuje flexibilnú správu rizík a minimalizáciu strát.“
